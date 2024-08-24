@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **madhurimaroy0428@gmail.com**
 
-- ⚡ Fun fact: **Writes code that sometimes actually works—on the first try!**
+- ⚡ Fun fact: **I write code that sometimes actually works—on the first try!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
